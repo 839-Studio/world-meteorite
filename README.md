@@ -1,5 +1,3 @@
-#Where did Meteorites Fall on the Earth?
-
 Data behind The Paper's story, "Where did Meteorites Fall on the Earth?"
 https://www.thepaper.cn/newsDetail_forward_2175730
 
